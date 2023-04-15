@@ -48,8 +48,6 @@ Tanulságok számomra
 
 4. Isten áldássá szeretne tenni engem más emberek számára.
 
-
-
 # Legyél férfi 1. rész - túllépni a halasztgatáson
 
 Az Úr először a halasztgatás területét hozta elém. Franciaországba költözésem után, szerettem volna venni egy álló asztalt megvenni. Több hetes elemzés során kiválasztottam magamnak egy asztalt, viszont itt megakadt a folyamat több hónapra. Békém volt abban, hogy megvegyem, viszont ott voltak az akadályok: nem tudok franciául így nem biztos, hogy az elárusítóval megtudom beszélni a dolgokat, drága, hogyan fogom haza szállítani stb.. Amikor mélyen erről gondolkodtam, beláttam, hogy a fő oka a halasztogatás volt, mert anyámasszonykatonájaként viselkedtem. Ezt a hozzáállást és ennek eredménytelenségét a Biblia így fogalmazza meg: “Aki mindig csak a szelet figyeli, nem vet, és aki csak a fellegeket lesi, nem arat.” Préd 11:4. Aznap viszont, amikor megszólított ez a “légy férfi” felhívás, eldöntöttem, hogy elfogok menni és megteszem azt amire az Isten a békéje által vezetett. Abban is hittem, hogy a folyamat során mindig fellépő komplikációkhoz az Úr ad erőt meg bölcsességet.
@@ -162,3 +160,42 @@ Ha az első részben beazonosított [1] jelképek alapján a kint maradt két é
 Abban egyeztek meg végül Józsuéval, hogy a harcosaik átkelnek.
 
  tovább olvassuk Józsué könyvét, akkor további szellemi törvényszerűségek tárulnak elénk. Ahhoz, hogy új területeket folgaljunk, vagyis Isten ígéreteit átvegyünk, erősnek és bátornak kell lennünk. Egy olyan "hát majd meglátjuk" hozzáállás nem visz előrébb ezen a téren. 
+
+
+
+## Gyógyulás a lidércnyomásból és az alvás közbeni fulladásból
+
+2017 nyarán július közepe után rémálmaim jelentek meg. Elejében hetente néhányszor, majd mindennap, végül pedig éjszakánként öt vagy többször. Az álmokban rettegtem, nem kaptam levegőt, összeestem, majd felébredtem arra, hogy tényleg nem kapok levegőt. Azt nem tudom pontosan mennyi időre állt le ilyen helyzetekben a légzésem, de minden alkalom halálfélelmem volt, és egy stressz volt a testemnek, mert úgy reagált a szervezetem, mint ha életveszélyben lennék. Gyakorlatilag amikor becsüktam a szemem, rögtön indult a horrorfilm. A fulladások megerőltették a szívemet, és ez miatt nem tudtam komolyabban edzeni. Korábban több kilométereket futottam, de ez miatt már pár száz méter futás után is már rosszul voltam. Volt, hogy ülés közben munkán csak úgy magától nagyokat dobbant a szívem. A betegség eléggé lekorlátozta az életemet. Csak ígéret volt számomra, hogy egykor majd megújul az erőm és majd én is képes leszek futni (És 40:31). A kollégáim csak annyit láttak, hogy nem pihentem ki este magam, és folyamatosan fáradt vagyok.
+
+Több hónapon át próbáltam megtalálni az forrását ennek a jelenségnek. Imádkoztam a gyógyulásért, dorgáltam is a betegséget, de nem volt komolyabb előrelépés. Régebben mondták, hogy eléggé horkolok nekem nem volt addig gond az alvásommal. Az tünetek alapján arra gondlta, hogy egyszerűen "alvási apnea" (sleep apnea angolul) aminél alvás közben az ember nyelve elernyed és hátracsúszik, ami megakadályozza a légzést. Ennek alapján elkezdtem az oldalamon aludni, mely részben mérsékelte a jelenséget, mivel az álmok és a fulladás tovább folytatódott. Végül arra jutottam, hogy démonikus hátterű lehet a dolog, viszont nem tudtam megoldást rá. Utólag megtaláltam, hogy ezt a jelenséget hívják lidércnyomásnak. Őszintén kerestem (és keresem) Isten akaratát, és nem tudtam semmilyen bűn belépésével összekötni a betegséget. Voltak akik elmondták, hogy nem tudnak segíteni, mások akik imádkoztak értem, de nem hozott változást. Egy bátorító Ige amit kaptam a Péld 3:24.
+
+Egy másik tünet az volt, hogy a mellkasom nagyon feszes volt, és nehezen kaptam levegőt. Amikor egyik hittestvéremnek elmondtam azt, hogy időnként nagyot dobban a szívem, azt mondtam hogy rögtön menjek el orvoshoz. Egyik alkalommal amikor már ébren is nagyon rosszul éreztem magam, eldöntöttem, hogy felkeresek egy orvost és elmondom a bajomat. Másnap éppen egy történetet olvastam, ahol egy hívő az orvosok segítségét kérte, aztán a végén rosszabb lett az állapota mint előtte, egy másik hívőnek meg Isten ima és hit által teljesen meggyógyította. Megkérdeztem Istent mi legyen, és a válasz az volt, hogy ne menjek el orvoshoz, hanem költözzem Budapestre. Itt megjegyzem, hogy a keresztény embernek nem bűn elmenni orvoshoz, én itt egy személyes vezetést követtem és ez nem egy általános elv. Így hát ilyen állapotban felmondtam, és elkezdtem budapesti munkákat és lakást keresni. Pár hét leforgása alatt sikerült mindkettőt találni, így odaköltöztem. Valamennyire mérséklődött a betegség. Ezt követően hetenként általában 1-2 este jelentkeztek a fulladások.
+
+2017 szilveszter éjszakáját a komáromi gyülekezetbe töltöttem. Ott elmondtam Cs. testvérnek a betegségemet, és kikértem a tanácsát. Elmagyarázta hogy mi a mi részünk és mi az Úr része a szabadításban. Mondta, hogy ezeket a félelmeket okkultizmussal lehet összekötni. Azt tudtam, hogy régebben, gyerekkoromban közöm volt ilyen tevékenységekhez mint az ingázás, horoszkóp, meg nézegettem az (otthon talált) tarott kártyákat, de ezeket megtagadtam, meggyűlöltem és leraktam a kereszthez. Cs. testvér azt állapította meg, hogy a betegség háttere családban korábban folytatott okkultizmus következménye. Megjegyzem, hogy azt biztosan tudom, hogy bizonyos őseim okkult dolgokkal foglalkoztak. 
+Ez a betegség az miatt léphetett be az életembe, mert sokat idegeskedtem, és ilyen esetekben van, hogy visszatérnek megkötözöttségek az ember életébe. A testvér elmondta hogyan kell megtagadni, elutasítani, levetkőzni, elvetni ezt a családi "hagyatékot" szellemi területen. Ez mellett pedig hinni kell és elfogadni a szabadulást, attól függetlenül, hogy érezzük vagy látjuk-e. Továbbá azt is hozzá tette, hogy minden nap lefekvés előtt ezt hittel hirdessem ki, és higgyem, hogy ezt a szabadulást megkaptam. Ha ezt tenni fogom, a tünetek fokozatosan el fognak tűnni az életemből. Az imát felvettem a telefonommal. Esténként vagy egy magam, vagy a hanganyag segítségével kihirdettem a szabadulást. Az imát követve első nap továbbra is voltak tüneteim második nap rendben volt, a harmadik éjszaka rosszabb volt mint az előzők, majd pedig eltűnt. Körülbelül két hetem teljesen jó volt minden tünet nélkül, viszont aztán egyik nap ideges lettem, és minden visszajött. Fel is hívtam a testvért aki segített, hogy most mi van. Ő csak annyit mondott, hogy nem kell megijedni, folytatni kell a hittel mondott imákat, és el fog tűnni, a fokozatos gyógyulásra a <mark>Lukács 17 valami</mark>  példáját hozta. Folytattam az imákat és tusakodásokat, és habár voltak visszaesések, de hosszútávon fokozatos javulás lett. Ha az eredeti 5%-os egészségről először felment 15%-re, majd visszaesett 10%-ra, majd felment 20%, leesett 15%-ra, majd felment 25%-ra stb. Az egészségem jelenleg 95% és 100% között van. Arra viszont vigyáznom kell, hogy ne maradjak meg az "elviselhetően rossz" állapotban, hanem a teljes gyógyulásig eljussak. 
+
+
+
+Egyik alkalommal mikor a gyülekezetben megosztottam a háttérben levő harcaimat, nem nagyon tudtak a többiek mit kezdeni vele. Egy személy az alkalom végén oda jött hozzám, és annyit mondott, hogy ne imádkozzak, mivel Isten nem akarja, hogy meggyógyuljak. Pál tövisével érvelt amit nem vett el az Úr. Azt mondta, hogy az azt jelenti, hogy Isten az helyett, hogy meggyógyította Pál szemét, erőt adott, hogy úgy betegen tovább folytassa. Ennek hatására beengedtem a gyógyulás felé való hitetlenséget a szívembe, ami pár napra visszadobott. Aztán a történetet átnézve, Cs. testvérrel átbeszélve megláttam, hogy habár bizonyos következtetések ami alapján arra gondolhatnánk, hogy a szeme volt rossz, de nem egyértelmű. Az viszont biztos, hogy az apostol a tövisével dicsekedett (2 Kor 12:<mark>valam</mark>), és ott a fejezetbe az erőtlenségeiről, üldözteséreiről beszél, és nem arról, hogy fizikálisan nem lát jól. 
+
+
+
+Tanulságok a történetből
+
+1. Ha hívő vagy, lehetnek támadásaid, vagy nehéz pillanataid az életben
+
+2. Isten van amikor nem a logikus úton vagy az általános elvek alapján vezet
+
+3. Ha nem is rögtön, de Isten adott megoldást
+
+4. A kudarcok és a nehézségek nem azt jelenti, hogy rossz úton járunk
+
+5. Ha valami nem oldódik meg az első imára, nem jelenti azt, hogy nem akarja Isten
+
+
+
+## Gyógyulás a láb feszességtől
+
+2018 folyamán mivel feleslegesnek tartottam a lábaim nyújtását, mivel úgy se balerinának készülök. A nyújtások mellőzése pár hónappal két problémám lett, először a <mark>micsoda?</mark> idegem elkezdett fájni, majd pedig a fenekem hideg lett a rossz vérkeringés miatt az edzések ellenére. Az idegfájdalom először csak egy futás után jelentkezett, viszont egy idő után folyamatosan. Az ülés csak rontott a körülményeket, és már 30 perc után is elkezdett fájni. Imádkoztam, elkezdtem a fenekemet nyújtani, de nem segített. Aztán nem tudom minek alapján, de arra lett indíttatásom, hogy szerezzek egy fitnesz labdát, és azon üljek a számítógép előtt. Ez néhány hét leforgása alatt segített az lábideg problémámon, viszont a fenekem továbbra is hideg volt. Egy kompromisszumos megoldást találtam, ahol a kezemmel előmelegítettem az ülőkét. Ennek segítségével ki tudtam küszöbölni a felfázást ami volt folyamatos hasmenést okozott, ami már egy már egy "elviselhetően rossz" állapot lett. Különböző erősítő és nyújtó gyakorlatokat néztem, megkérdeztem egy szakértőt is, viszont semmi nem hozott komolyabb előrelépést. Aztán az 5. év végén Isten feltette nekem a kérdést, hogy miért nem imádkozom ezért. Hogy őszinte legyek, nekem előtte eszembe se jutott, hogy Isten elé tárjam úgy komolyabban, de ennek alapján elkezdtem imádkozni. Elmondtam egyszer a fizikai állapotomat, majd hálát adtam azért, hogy Jézus sebei által már meggyógyultam, és Isten már megoldotta ezt a problémám annak ellenére, hogy az továbbra is ott volt. Pár nap ima után, egyszer csak azt éreztem, hogy ülés közben magától felmelegedett a székem, majd pedig később a székekre felfázás nélkül rá tudtam ülni.
+
+Egyik esetben a fitness labda megvétele volt amire Isten vezetett, a másikban meg az, hogy csak hit által imádkozzam a gyógyulásért. Mindkét módszer lehet Istentől.s 
