@@ -124,7 +124,7 @@ páska - Úrvacsora - közösség
 
 [2] Ami a hasznos földben van, olyanokat jelez, akik, miután nemes és jó szívvel meghallgatták az igét, azt birtokukba veszik, és állhatatossággal gyümölcsöt teremnek Lk 8:15 Csia
 
-[3] Marika bizonysága
+[3] Egy bizonyság a dal a zene erejéről. Kint voltunk a nyaralóba a három unokámmal 2 13 éves (egy fiú egy lány) és egy  5 éves kislány. Megbeszéltük, hogy kedden hamarabb elvégződünk (fürdés, vacsora) mert én szeretnék részt venni a keddi discord tanulmányozáson. Mondtam, hogy ők nyugodtan maradhatnak még a kertben, de én felmegyek mert ott jobb a térerő. Úgy döntöttek, hogy jönnek velem. Először nem tudtam kezelni a discordot, mert másik telefonom van. Egyik unokám ebben segített. Majd elkezdődött az óra, Szilárd általában énekkel kezd és szokássá vált nálam, hogy én is énekelek vele. A gyerekek csendben voltak és hallgattak, néha kuncogtak. Amikor vége volt az órának már énekelték az "Áldom Szent Neved" dalnak a refrénjét. Aztán amíg együtt voltunk (péntek délutánig minden nap) énekelték sőt még engem is kértek, hogy énekeljem el újra. Az ottlétünk alatt több alkalommal szóba került Isten a dal kapcsán. Az úton hazafelé végig Istenről  kérdezgettek és beszélgettünk. Hálás vagyok, hogy bevezetted az óra megkezdése előtt az éneklést és, hogy ennek ilyen nagy haszna volt a gyerekeknek, hogy beszélgethettünk Istenről és ők is Dicsőítették.
 
 ## Légy férfi 3. rész - az önállóság
 
